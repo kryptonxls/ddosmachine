@@ -1,1 +1,1 @@
-# ddosmachine
+2021 EN İYİ DDOS MACHİNE !
